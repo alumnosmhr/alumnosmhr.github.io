@@ -1,1 +1,0 @@
-# alumnosmhr.github.io
